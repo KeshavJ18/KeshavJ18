@@ -4,7 +4,7 @@
 📍 New Delhi, India  
 📧 [kesh.bhardwaj18@rediffmail.com](mailto:kesh.bhardwaj18@rediffmail.com)  
 📞 +91 9718536989  
-🌐 [LinkedIn](https://www.linkedin.com/in/keshav-kumar-jha-8b552421b/) *(optional)*
+🌐 [LinkedIn](https://www.linkedin.com/in/keshav-kumar-jha-8b552421b/)
 
 ---
 
